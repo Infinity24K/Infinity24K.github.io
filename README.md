@@ -1,2 +1,2 @@
 # Infinity24K.github.io
-Hi my name is Weseley Chen and I sold my social security for 20 dollars
+Hi my name is Wesley Chen and I raided a swat team. I stolen more than 30 IDs. Im getting attacked by highschoolers. I stolen several cars.
