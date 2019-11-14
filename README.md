@@ -1,2 +1,2 @@
 # Infinity24K.github.io
-Im so tired and nobody likes school
+Hi my name is Weseley Chen and I sold my social security for 20 dollars
